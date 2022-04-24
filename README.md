@@ -24,4 +24,4 @@
 
 ### Estou muito feliz com o resultado, e agora, como diz nossa querida professora Simara, nem o céu é o limite! 
 
-![image](https://giphy.com/gifs/disney-books-beauty-and-the-beast-belle-JEhCPFfqi2Hy8)
+![image](https://media1.giphy.com/media/JEhCPFfqi2Hy8/giphy.gif?cid=ecf05e47ioyho90zwi7eklw08t0qbgyy08h6iu92674ey6y5&rid=giphy.gif&ct=g)
